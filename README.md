@@ -18,6 +18,285 @@ ARCHIVEFILE :RETRIEVIE   FILE  REQUEST : YEARS CASE NUMBER PLEADING LEGACY REFER
 NOTICE GOV: LOW LEGISLATION  SKILL DEVELOPMENT.NOTICE MOTION   EMPHASY 
 
 
+IN THE LABOUR APPEAL COURT OF SOUTH AFRICA
+(HELD IN JOHANNESBURG)
+                                                                                                                                CASE NO: JR2461/15
+Ref no :02/15781
+                                                                                                                                FILE NUMBER. REF/: 4 .2019 07 01 .15 -0700
+
+In the matter between 
+TSHITADI FISTON TSHINGOMBE:                                                                   APPLICANT  
+NOGADA SECURITY SERVICE    :                                                                        FIRST RESPONDENT 
+COMMISSION FOR CONCILIATION MEDIATION                                                    
+AND ARBITRATION    :                                                                                         SECOND RESPONDENT 
+COMMISSIONER ELIZABETH                                                                               THIRD RESPONDENT 
+ 
+AGREEMENT : JUDGEMENT LEAVE TO APPEAL, ORDER NOTICE PETITIONER, REASON BID SUBMISION : MEMORENDUM .SKILL DEVELOPMENT,
+ARCHIVEFILE :RETRIEVIE   FILE  REQUEST : YEARS CASE NUMBER PLEADING LEGACY REFERAL EXECUTION WRITE FILING:
+NOTICE GOV: LOW LEGISLATION  SKILL DEVELOPMENT.NOTICE MOTION   EMPHASY 
+
+
+
+
+
+
+-ISSUE HONOURABLE JUSTICE 
+DATA ANALYSE INVESTIGATION   FILE, AFFIDAVIT SHERRIF COMPLAIN, 
+ AGREEMENT JUDGEMENT LEAVE TO APPEAL, 
+DECISSION JUDGEMENT, AGEEMENT OVER STAY FILE RETRIEWED CHAMBER DECISSION,
+AGREEMENT ORDER NOTICE PETITION,
+ RETENTION FILE ISSUE, REQUESTED ARCHIFILE, LIMITATION RULES MANUEL PRACTICE  
+ARCHIFILE STATEMENT AFFIDAVIT., CONSTITUTIONEL OFFEND  MOTION, ,LIMITATION CCMA POLYGRAPH COLLECTION FROM, CONSTITUTIONEL  OFFEND DEFENSIVE, ORDER DEBITOR ORDER CREDITOR, RETENTION BILL RECORD TRANSCRIPTION JUDGEMENT   ORDER HIGH COURT MASTER COURT LIQUIDATION,  ,
+DATA ANALYSE INVESTIGATION FILE LABOUR SHERRIF MISCONDUCT, RETENTION FORM BID CLOSE ANSWERING 30 DAYS QUOTATION, FILING. 
+-AGREEMENT JUDGEMENT LEAVES TO APPEAL DECISSION 1 YEARS MAGISTRATE COURT SUPREME, CONSTITUTIONEL, and LEGACY ARCHIFILE.  MOTION NOTICE, AVAILABLE PROCESS.  REJECTION SAQA , COUNCIL SUBMISSION  SETA  SASSETA,PSIRA  CLOSE BID NO ANSWERING 1 MONTH  FILE SUBMISSION POST OFFICE REQUESTED FILING.ENFORCEMENT , DATABASE ANALYSE INVESTIGATION, JUDGEMENT LEAVE TO APPEAL,ORDER, AGREEMENT  PROBATION  LABOUR JUDGEMENT LEAVE TO APPEAL. 
+-HONOURABLE JUSTICE  PRESIDENT  LABOUR COURT AND APPEAL COURT LABOURT  PROBATION DATA INVESTIGATION LEAVE COMPENSATION GRATUITE  LEAVE  TO APPEAL NO GRANTED ORDER NOTICE  REFUSE NO  ORDER COST MADE ,AGREEMENT RESOURCE MANAGEMENT  COURT , 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+COMMENCEMNT OF RULES
+
+
+
+
+
+10.11 Settlement agreements and draft orders 18 
+11. Motion proceedings (excluding urgent matters) 19 
+11.1 Case management 19 
+11.2 Application to review awards and rulings 19 - 21 
+11.3 Applications for winding up of Trade Unions or Employers‟ Organisations 21 - 22 
+11.4 Filing of answering and replying affidavits 22 
+11.5 Index, pagination, binding and general preparation 22 - 23 
+11.6 Heads of argument 23 - 24 
+11.7 Postponements 24 - 25 
+11.8 Practice note in motion proceedings 25 - 26 
+12. Urgent matters 26 - 29 
+13. Contempt of Court 29 - 30 
+14. General provisions 30 
+STATEMENT OF CASE
+1. The ................................................................................... applicant will accept notices and
+(specify first, second, third, etc)
+service of all documents in this matter at the following address:
+...............................................................
+...............................................................
+...............................................................
+Fax No. ........................................ Telephone No. .......................................
+2. If a party intends opposing the matter, the response must be delivered within 14 days of
+service of this statement in terms of subrule 6(3) of the Rules of the Labour Court, failing which the
+matter may be heard in that party's absence and an order for costs may be made against that party.
+RULES OF THE LABOUR COURT: FORM 2
+2
+Details of the parties
+3. The ...................................................................................................................... applicant is
+(specify applicant)2
+.............................................................................................................................
+(description of applicant)
+having the address stated in paragraph ....................... above.
+4. The ...................................................................................................................... applicant is
+COMMENCEMNT OF RULES
+
+
+TO THE JUDGE  PRESIDENT  OF THE LABOUR  APPEAL COURT OF THE REPUBLIC OF SOUTH AFRICAT AND THE OTHER  HONOURABLE JUDGE  OR JUDGES APPEAL TO WHORM THIS   commencement of rules  MAY  BE  REFERD  BY THE HONOURABLE  THE JUDGE  PRESIDENT  .
+BE PLEASED  TO TAKE NOTE THAT     COMMENCEMNT OF RULES  INTENDS TO  MAKE  APPLICATION  TO HIS  LORDSHIP THE  ,HONOURABLE  JUDGE  PRESIDENT   FOR  AN  ORDER  IN THE  FOLLOWING TERMS:
+IN THE TERM APPLICATION REVIEW   .AND GROUND REVIEW OF. THE rules come into operation the day that the whole of the set into operation low evaluation. no granted contractor term employee and employer  by the judge decision   in term rescission ruling condemnation party   need agreement and pay outcome certificate and award price termination contractor and review  
+16. ARCHIVING FILES 
+16.1 In spite of any other provision in this manual, the Registrar will archive a file in the following circumstances: 
+in the case of an application in terms of Rule 7 or Rule 7A, when a period of six months has elapsed without any steps taken by the applicant from the date of filing the application, or the date of the last process filed; 
+in the case of referrals in terms of Rule 6, when a period of six months has elapsed from the date of delivery of a statement of case without any steps taken by the referring party from the date on which the 
+34 
+
+statement of claim was filed, or the date on which the last process was filed; and 
+when a party fails to comply with a direction issued by a judge within the stipulated time limit. 
+
+16.2 A party to a dispute in which the file has been archived may submit an application, on affidavit, for the retrieval of the file, on notice to all other parties to the dispute. The provisions of Rule 7 will apply to an application brought in terms of this provision. 
+16.3 Where a file has been placed in archives, it shall have the same consequences as to further conduct by any respondent party as to the matter having been dismissed. 
+
+
+
+
+
+
+
+
+
+
+
+
+Notice  record  transcription  estimable  cost projection,  power attorney interpretation  whole case  number copy cd  ,typist  digital audio record transcription APPEAL  COURT NOTICE PETITION AND INTERPOLATION CCMA  ,DERIVATION MISCONDUCT  TERM  
+Admn clerk  klass kgopa date  22/03/2016  ref/ qlaa15781  client name  tshitadi fiston tshingombe   contact   ,billing  
+94 Prichard Street| Schreiner Chambers| JHB Opposite JHB High Court / 6TH Floor Office 622 Tel: 010 590 9268 Fax: 086 603 2031| 086 601 5996 Email: labourcourt@inlexsodb.co.za Website: www.inlexso.co.za .  CLAIM 
+ Our Reference: JR2461/15TjitadiFistosTshingombe Date: 15 November 2019 
+COMPANY: Tjitadi Fistos Tshingombe 
+YOUR REF: Tjitadi Tshingobe 
+EMAIL : tshingombe520@gmail.com 
+MATTER: Tjitadi Fistos Tshingombe / Nogada-SA 
+CASE NO: JR2461/2015 (15 Min) - APPROX. 
+QUOTATION FORM 
+TRANSCRIBING 
+Normal Tariff: R 30.00 per page (2-3 weeks processing time) R426.00 Incl Vat & Admin 
+Urgent Tariff 1: R 35.00 per page (10 days processing time) R472.00 Incl Vat & Admin 
+Urgent Tariff 2: R 40.00 per page (5 days processing time) R518.00 Incl Vat & Admin 
+Admin Fee: R 150.00 
+Should our quotation meet your requirements kindly complete and sign the Acceptance Form below and fax or email to our office as soon as possible. 
+Thank you. 
+ACCEPTANCE OF QUOTATION: 
+On behalf of……………………… (Company Name) I, …………………………(Signatory’s Name) hereby accept the 
+Above quotation for TYPING AT THE NORMAL / URGENT 1 / URGENT 2 TARRIF. 
+(Please circle applicable). 
+Terms and Conditions: 
+1. PLEASE NOTE THAT THIS QUOTATION IS BASED ON AN ESTIMATED NUMBER OF PAGES, THE ACTUAL NUMBER OF PAGES WILL BE ON THE TAX INVOICE. 
+
+2. All accounts to be settled as COD. ( ONLY EFT OR CASH ACCEPTED AS PAYMENT-NO CHEQUES ACCEPTED ) 
+
+3. Kindly note that we have no control over the duration of the signing of judgments and our tariff relate ONLY to the transcription 
+
+
+
+
+NOTICE  TO ATTAND  A DISCIPLINAIRY HEARING
+ NAME : -APPLICANT   TSHITADI FISTON   . TSHINGOMBE                                                                     DATE ::
+                 -RESPONDENT       N/A  LABOURS  CCMA   REPRESENTATIVE MANAGER DIRECTOR . EMPLOEYER 
+ISSUING : PROCESS PROJECT  PROCEDURE POLICE APPEAL 
+                   NOTICE  APPEAL, NOTICE PETION , 
+                  NOTIFICATION   JUDGEMENT  APPEAL  RULING 
+ FORM : FILE APPLICATION RETRIVED  APPEAL COURT MANAGEMNT  
+ LETTER OF SUSPENSION  : JUDGEMENT  APPEAL  COURT   .DISMISSAL  LETTER  licensing   no order cost made 
+CLOSE  SUP LY : SECT ION XVII APPLICANT     POLICE  PROCEDURE 
+INCAPACITY :counseling  poor work  condo nation ,  no filled submission, no attend  
+ Name :  employment performance 
+ Date  of hearing : 
+ Agree action  take  guidance  instruction  training 
+-Notification  to appear 
+- Designation  
+- Department  
+- Detail of incapacity hearing 
+- Un execution  sale    write  , company CC .NO 205/124132/33  cat , CC NO 2011/011919/23 ,VAT NO  4150224124 legislation  close cooperate , 10 slept 
+- PSRA NO 1358428 vs  jr 2461/15….gb .              gaek        post office register..ja         petitioner clearance. Bid close file…dismissal, award, beneficial con arbitral,,  certificate outcome agree.    Complain notice ..
+Head  argument section  form letterCOMPLAINT AGAINST SHERIFF JOHANNESBURG CENTRAL (019/11/19)
+Inbox	x
+
+Tarne Van Wyk <Tarne@sheriffs.org.za> 
+	Mon, Jan 13, 10:41 AM (3 days ago)
+	
+	
+to me, Precious 
+
+
+Good day Mr Tshingombe
+ 
+We refer to the above, our numerous attempts to contact you and our email dated 21 November 2019 to which we have not been afforded the courtesy of a response.
+ 
+In order to assist the Board in finalizing this matter, you were requested to provide the Board with a legible duly commissioned prescribed Form 3 Complaints Affidavit, which was not forthcoming.
+ 
+During our investigation stage, the Board could not make out what your complaint was about in order to make a determination as to whether there was any misconduct on the part of the Sheriff.
+ 
+Your failure to respond has resulted in the assumption that the matter between yourself and the Sheriff has been resolved.
+ 
+In light of the above, our file is closed
+ 
+Kind Regards,
+Tarne Van Wyk - Complaints Administrator
+Legal & Complaints
+88 Loop Street, Cape Town, 8001
+PO Box 15223, Vlaeberg, 8018
+T: 021-426 0577    F: 021-426 2598
+SABFS Fraud Hotline: 0800 000 628
+ 
+www.sheriffs.org.za   contact us   map
+ 
+This email and all contents are subject to the following disclaimer
+ 
+
+ 
+
+
+
+
+
+
+3
+
+fiston tshingombe		Wed, Jan 15, 5:34 PM (19 hours ago)
+Investigating & Charging in Disciplinary HearingsInboxx LabourSmart Training via gmail.mcsv.net Jan 14, 2020, 11:35 AM (1 day ago) to TSHINGOMBE520 Investigatin
+
+
+Mail Delivery Subsystem 
+	1:03 PM (2 minutes ago)
+
+	
+	
+to me 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Delivery incomplete 
+There was a temporary problem delivering your message to bmohamed@sasseta.org.za. Gmail will retry for 22 more hours. You'll be notified if the delivery fails permanently. 
+LEARN MORE 
+
+
+The response was:
+The recipient server did not accept our requests to connect. Learn more at https://support.google.com/mail/answer/7720 [mail.sasseta.org.za. 41.169.96.29: timed out] 
+
+ item / in case under register license  required enforcement..  clerence bid tax practice tax ,, salary bee company  originator ,copyrith execution matter, transcribe record 5 years, 8,years, case ,
+
+ 
+SUBMISSION 
+
 
 
 
